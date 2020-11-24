@@ -1,1 +1,1 @@
-# TBHostGen.github.io
+# Host Genetics Research Group
